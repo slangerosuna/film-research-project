@@ -38,6 +38,7 @@ https://www.britannica.com/art/history-of-the-motion-picture/The-Hollywood-studi
 “The Hollywood Studio System.” _Encyclopædia Britannica_, Encyclopædia Britannica, inc., www.britannica.com/art/history-of-the-motion-picture/The-Hollywood-studio-system. Accessed 8 Nov. 2023.
 
 ### Important facts
-1. 
+1. Large mergers as the result of the sound.
+2. Fox and Warner Brothers became large corporations as the result of their use of pre-recorded sound with movies
 ### Important quotes
 1. 
